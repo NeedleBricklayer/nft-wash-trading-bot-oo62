@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with secure NFT Scanner for nft wash trading bot | royalty-calculator & auto-sell, the #1 nft wash trading bot. Includes royalty-calculator and auto-sell
 
 
 
